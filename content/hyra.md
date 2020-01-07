@@ -42,7 +42,7 @@ Pris för fem kanoter med paddlar och flytvästar:
 ## Mer information
 Kika gärna runt på sidan för att läsa på om t.ex. [stugorna](/stugor) eller se [bilder på lägergården](/bilder). 
 
-Tveka inte att [kontakta oss](kontakta) för mer information.
+Tveka inte att [kontakta oss](/kontakta) för mer information.
 
 
 
